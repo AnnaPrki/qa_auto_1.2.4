@@ -1,0 +1,1 @@
+# Diese Schule ist gut.
